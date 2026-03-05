@@ -35,6 +35,6 @@ it will predict the each and every dataset.
 
 thanks for watching.....
 
-By, 
-1CRORE PROJECTS......
+
+
 
